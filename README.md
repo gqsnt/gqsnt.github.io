@@ -1,1 +1,0 @@
-# gqsnt.github.io
